@@ -1,4 +1,4 @@
-
+adopt me secret Script infinite resources plus auto-collect is the best adopt me Script, featuring infinite resources and auto-collect. Safe and
 
 
 ---
